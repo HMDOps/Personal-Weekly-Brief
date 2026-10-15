@@ -1,0 +1,32 @@
+# Previous picks before cloud routine (do not repeat)
+
+- The Four Wives and Five Deaths of Richard Milford (Nafissa Thompson-Spires)
+- Shigidi and the Brass Head of Obalufon (Wole Talabi)
+- Friends and Family (Natalie Baszile)
+- ArchDaily interview with Worofila (Nzinga Mboup, Nicolas Rondet)
+- Hanging and Burning (Walter Mosley)
+- Neptune Frost (Saul Williams, Anisia Uzeyman)
+- Francis Kere TED talk 'How to build with clay... and community'
+- Colored Conventions Project
+- The Fist of Memory (Wole Talabi)
+- Conquer the Soil (Abra Lee)
+- Rosewater (Tade Thompson)
+- Africanfuturism: Short Stories (Flame Tree anthology)
+- On Morrison (Namwali Serpell)
+- The Daughter Who Remains (Nnedi Okorafor)
+- Parable of the Sower study material on massolit.io
+- The Tongue I Dream In (Sheree Renee Thomas)
+- Binti: The Complete Trilogy (Nnedi Okorafor)
+- Afrofuturism: The World of Black Sci-Fi and Fantasy Culture (Ytasha Womack)
+- Aneesa Adams, Translating Zulu heritage into contemporary furniture (Daily Maverick)
+- Afrofuturism in popular culture, TEDxNairobi (Wanuri Kahiu)
+- Masakhane
+- Tosin Oshinowo interview
+- Sharjah Architecture Triennial 2026
+- Midnight Robber (Nalo Hopkinson)
+- Riot Baby (Tochi Onyebuchi)
+- Salu Iwadi Studio Zangbeto Side Table and Gedede Lamp Collection
+- Atlanta History Center Black gardening and landscape collection
+- Abra Lee 'Planting Your Path' lecture
+- Everfair (Nisi Shawl)
+- Terry Aidoo Kabila Collection
